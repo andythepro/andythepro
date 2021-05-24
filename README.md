@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @andythepro.
+- 👀 I’m interested in drawing comics and programming.
+- 🌱 I’m currently learning everything that helps me start my own business.
+- 💞️ I’m looking to collaborate on making video games.
+- 📫 How to reach me ... see my Email plz.
